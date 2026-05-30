@@ -173,9 +173,10 @@ Predicted Price: ₹90.00 Lakhs
 
 Release Engineer | Data Analytics & Machine Learning Enthusiast
 
-📧 Email: [your-email@example.com](mailto:your-email@example.com)
+📧 Email: gashwitha2000@gmail.com
 
-🔗 LinkedIn: https://www.linkedin.com/
+🔗 LinkedIn: https://www.linkedin.com/in/ashwitha-gogikar-35839a1b5/
+
 
 ---
 
